@@ -1,3 +1,8 @@
+Domonique Muldrow 
+CS 470 
+6/26/2024
+CS 470 Final Reflection
+
 # 8-1-Assignment-Final-Reflection
 Experiences and Strengths: Explain how this course will help you in reaching your professional goals.
 What skills have you learned, developed, or mastered in this course to help you become a more marketable candidate in your career field?
